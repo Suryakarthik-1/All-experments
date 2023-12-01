@@ -17,3 +17,5 @@
 8th Experiment Video:- https://drive.google.com/file/d/1H8ZBm5DFwq82PbSV1sZpVSJxE16Py5z2/view?usp=sharing
 
 9th Experiment Video:- https://drive.google.com/file/d/1JqrHZtQ4jSzW5StivmYpqlFJqg6Yn-xP/view?usp=sharing
+
+10th Experiment Video:- https://drive.google.com/file/d/1O6m4csnHGOQOZn8Se81u-J2UaLGShghA/view?usp=sharing
