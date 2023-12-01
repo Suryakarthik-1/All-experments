@@ -19,3 +19,5 @@
 9th Experiment Video:- https://drive.google.com/file/d/1JqrHZtQ4jSzW5StivmYpqlFJqg6Yn-xP/view?usp=sharing
 
 10th Experiment Video:- https://drive.google.com/file/d/1O6m4csnHGOQOZn8Se81u-J2UaLGShghA/view?usp=sharing
+
+11th Experiment Video:- https://drive.google.com/file/d/1JvsKpz_YcJIiN0AhCapULRG-eqRTLvfa/view?usp=sharing
