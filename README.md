@@ -11,3 +11,5 @@
 5th Experiment Video:- https://drive.google.com/file/d/17QXL0oliWbbPiU3qGy2L4gTD1yI2vmjE/view?usp=sharing
 
 6th Experiment Video:- https://drive.google.com/file/d/1YBuPiiUqbPvzrpYINvDG9HkWbS3aTcKX/view?usp=sharing
+
+7th Experiment Video:- https://drive.google.com/file/d/1KuJGYvuFLxZOQWM5_300xCivWcREOaW5/view?usp=sharing
